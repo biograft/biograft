@@ -1,9 +1,14 @@
-taken & 18. i prefer 16+ to int. i'm a little uncomfortable talking to people under 16.
+<p align="center">
+he it she ㅤ 18⇈ & taken ㅤ roblox artist & beginner modeler
+  </p>
+<p align="center">
+  please don't copy skins i make for myself and friends. insp is a no unless asked
+    </p>
+<p align="center">
+only ever around if my friends are. i'm a retired chronically online pt player
+</p>
 
-roblox artist. i do concepts and ugc on the side for fun and to learn blender.
-
-i hide/block people freely for my own comfort. no personal feelings! just trying to curate my experience
-
-i'm mostly online for friends, making skins, or out of boredom. i'm mostly off-tab, so please w2i always!
-
-please don't copy my skins or whatever i make for my friends. inspirations are a no unless asked.
+<br>
+  <p align="center">
+<a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fbiograft"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fbiograft&label=SINS&countColor=%23f47373&style=flat&labelStyle=upper" /></a>
+</p>
